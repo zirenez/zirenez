@@ -1,7 +1,6 @@
+<div align="center"> 
 
+<h1> 
 
-![](https://images.cooltext.com/5708022.gif)
-
-![](https://i.ibb.co/Kjpnwsh/pony-town-THE-COLLECTER-kiss-lift-hoof-blinking-padded-4x.gif) ![](https://i.ibb.co/YRfKpNq/pony-town-The-diva-kiss-blinking-padded-4x.gif) 
-
-![](https://i.ibb.co/prtHVSj/pony-town-Giff-silly-wink-hearts-blinking-padded-toy225-4x.gif) ![](https://i.ibb.co/smtvzPT/pony-town-In-bitter-Syrup-trot-blinking-padded-4x.gif)
+<a href="https://i.pinimg.com/originals/90/aa/c8/90aac8d9e3f79d94c3134bb15179cd9b.gif"> <img src="https://i.pinimg.com/originals/05/83/16/058316d2c31850500b665cb36303ac1f.gif">
+  
